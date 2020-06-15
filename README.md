@@ -5,4 +5,4 @@
   <br><b> Apk Release<a href="https://drive.google.com/drive/folders/11k0qGwMPTv3oBFfmG1UAJnRmnNb2gDQP?usp=sharing" >here</a>
    
 <br> <b>For more contact me
-  <a href="http://rashedalkhatib.epizy.com/" >here</a
+  <a href="http://rashedalkhatib.epizy.com/" >here</a>
